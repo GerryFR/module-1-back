@@ -5,3 +5,4 @@ Again, he tried to do everything fast
 His favorite is a pumpkin spice latte
 With a nice croissant
 and an excessive amount of whipped cream
+He strutted into class with white and green cup in hand
