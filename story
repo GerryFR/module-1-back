@@ -7,3 +7,4 @@ With a nice croissant
 and an excessive amount of whipped cream
 He strutted into class with white and green cup in hand
 Odd flex but ok
+Ya boi always flexes on dem hataz
