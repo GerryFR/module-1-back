@@ -5,6 +5,7 @@ Again, he tried to do everything fast
 His favorite is a pumpkin spice latte
 With a nice apple tart
 and an excessive amount of whipped cream
+with cinnamon sprinkled on top.
 He strutted into class with white and green cup in hand
 Odd flex but ok
 Ya boi always flexes on dem hataz
