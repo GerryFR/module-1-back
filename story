@@ -1,1 +1,2 @@
 One day Gerry was late to class
+Because he wanted to stop and get some coffee before class
