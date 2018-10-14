@@ -3,8 +3,8 @@ Because he wanted to stop and get some coffee before class. EDIT: Gerry likes to
 Unfortunately, this time wouldn't be the last. EDIT: Gerry is actually very punctual. I just wanted to rhyme this line (and half rhyme this sentence).
 Again, he tried to do everything fast
 His favorite is a pumpkin spice latte
-With a nice apple tart
-and an excessive amount of whipped cream
+With an excessive amount of whipped cream
+and a nice apple tart
 with cinnamon sprinkled on top.
 He strutted into class with white and green cup in hand
 Odd flex but ok
